@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil de Kimberly Rosa 😁
+## Bem-vindo(a) ao perfil de Kimberly Rosa ☁
 
  <div>
    <a href="https://github.com/itskrosa">
